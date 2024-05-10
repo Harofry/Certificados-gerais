@@ -8,4 +8,4 @@
 #### -Bombeiros - 2019 a 2020
 #### -UNP - 2020 a 2024
 #### -UFRN - 2022 - atualidade
-#### -Adicionais - Atividades extras separados dos citados acima
+#### -Adicionais - Atividades extracurriculares relacionados a outras entidade dos citados acima
