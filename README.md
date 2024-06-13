@@ -1,6 +1,6 @@
 # Certificados-gerais
 
-## Certificações profissionais ao longo da minha vida acadêmica/profissional
+## Certificações profissionais ao longo da minha vida acadêmica/profissional.
 
 
 ### *Divisão em periodos importantes de tempo, alinhados da seguinte forma:
